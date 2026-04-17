@@ -28,8 +28,8 @@ I approach every project with a focus on value, growth, and results—ensuring t
 To build a strong creative brand that delivers quality content, inspires audiences, and creates meaningful impact through media and design.
 
 ## 📫 Contact
-- Email: your-email@example.com  
-- Phone: +XXX XXX XXXX  
+- Email: banguraelijah17@gmail.com 
+- Phone: +23274831492 
 - Location: Sierra Leone  
 
 ---
